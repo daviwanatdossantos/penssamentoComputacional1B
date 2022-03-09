@@ -1,5 +1,8 @@
 # penssamentoComputacional1B
 estou no meio da sala e ja quero me matar é normal? me matei e olho no que deu!!!!!
 diciplina pensamento computacional 
-professor wellngton 
+professor ╔══╗
+╚╗╔╝
+╔╝(¯`v´¯)
+╚══`.¸.[welington]
  # mono akali é crime???
